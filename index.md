@@ -10,6 +10,8 @@ She is also respected as a strong and intelligent leader.
 * peaceful
 * respected truth
 
+## Famous Quote
 > Pity for the guilty is treason to the innocent.
 
+## Character Photo
 <img src="https://vignette.wikia.nocookie.net/sot/images/a/a3/Kahlan_Amnell.jpg/revision/latest?cb=20120904222753"/>
